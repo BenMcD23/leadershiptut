@@ -1,4 +1,0 @@
-# leadershipTutorial
-# leadershiptut
-# leadershiptut
-# leadershiptut
